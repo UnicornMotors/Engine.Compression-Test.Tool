@@ -1,0 +1,2 @@
+- [BEWARE of this Harbor Freight Tool](https://youtu.be/7PbHJudOd4U)
+- [Buy This! Not This! - Comparing Two Compression Testers](https://youtu.be/Td8JxxmHXVc)
